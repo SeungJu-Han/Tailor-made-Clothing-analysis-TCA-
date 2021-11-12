@@ -4,4 +4,6 @@
 
 ### https://drive.google.com/file/d/12wYg0hTpSe6d4dOf8Mftn5vZ9KCHGIm5/view?usp=sharing
 
+###  ↓ ↓ ↓ ↓ ↓ ↓ ↓ ↓ click the image that you can see a video that I made ↓ ↓ ↓ ↓ ↓ ↓ ↓ ↓  
+
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/N2lOb7Yzhlw/0.jpg)](https://www.youtube.com/watch?v=N2lOb7Yzhlw)
