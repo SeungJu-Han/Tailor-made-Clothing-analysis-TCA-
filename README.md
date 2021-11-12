@@ -7,3 +7,7 @@
 ###  ↓ ↓ ↓ ↓ ↓  click the image that you can see a video that I made ↓ ↓ ↓ ↓ ↓  
 
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/N2lOb7Yzhlw/0.jpg)](https://www.youtube.com/watch?v=N2lOb7Yzhlw)
+
+### ↓ ↓ ↓ ↓ ↓ 프레젠테이션 내용이 궁금하시면 아래 링크를 눌러주세요  ↓ ↓ ↓ ↓ ↓
+
+### https://docs.google.com/presentation/d/1wm23hQaYhAwAlC7tjsk9kGR9Z_nZJDqS/edit?usp=sharing&ouid=114047208367462573916&rtpof=true&sd=true
